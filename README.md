@@ -1,2 +1,2 @@
-# Gov-Spicy-Web
-Landing page for govspicy.com.
+# G-dot
+Landing page for deeeeeeeez nutz 
