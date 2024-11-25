@@ -1,2 +1,0 @@
-# G-dot
-READ ME
